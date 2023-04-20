@@ -1,0 +1,1 @@
+# GMKA_O-uz_S-zen
