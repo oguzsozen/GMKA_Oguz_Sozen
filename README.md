@@ -1,1 +1,1 @@
-# GMKA_O-uz_S-zen
+# GMKA_Oguz_Sozen
